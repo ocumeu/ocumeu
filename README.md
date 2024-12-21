@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ocumeu
+- 👀 I’m interested in Blockchain
+- 📫 How to reach me at github >_<
+- 😄 Pronouns:she/her
+- ⚡ Fun fact:i like cats
